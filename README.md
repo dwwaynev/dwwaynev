@@ -20,7 +20,7 @@
   
 [新Book](https://damianwayne.atabook.org/)   𓈒  <img src="https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=f1379c3e" alt='82'/> 
 𓈒
-[rentry](https://rentry.co/thesonofabat)
+[rentry](https://rentry.co/thesonofthebat)
 
 </div></sub>
 
