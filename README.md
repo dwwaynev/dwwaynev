@@ -10,7 +10,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">ㅤㅤㅤㅤㅤㅤㅤ
   
-![](https://komarev.com/ghpvc/?username=dwwayne&color=9f3308&label=bats&base=12482580) 𓏼 ৻ꪆ
+![](https://komarev.com/ghpvc/?username=dwwaynev&color=9f3308&label=bats&base=12482580) 𓏼 ৻ꪆ
   
 </div></sub>
 
